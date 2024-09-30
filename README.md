@@ -1,1 +1,0 @@
-# studyESG.github.io
